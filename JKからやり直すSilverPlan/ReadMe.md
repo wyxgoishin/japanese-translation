@@ -17,9 +17,9 @@
 > 「シルバープラン」に全力をかけた
 > 小百合の二度目の人生が今、始まる！
 >
->**2021年11月、テレビ東京にてTVドラマがスタート！**
->**【公式HP】 https://www.tv-tokyo.co.jp/silverplan/ **
->**【公式Twitter】https://twitter.com/tx_silverplan **
+>**2021年11月、テレビ東京にてTVドラマがスタート！**<br/>
+>**【公式HP】 https://www.tv-tokyo.co.jp/silverplan/**<br/>
+>**【公式Twitter】https://twitter.com/tx_silverplan**
 
 <br/>
 

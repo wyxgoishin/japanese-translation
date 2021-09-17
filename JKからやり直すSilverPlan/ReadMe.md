@@ -18,8 +18,8 @@
 > 小百合の二度目の人生が今、始まる！
 >
 >**2021年11月、テレビ東京にてTVドラマがスタート！**
->**【公式HP】 https://www.tv-tokyo.co.jp/silverplan/**
->**【公式Twitter】https://twitter.com/tx_silverplan**
+>**【公式HP】 https://www.tv-tokyo.co.jp/silverplan/ **
+>**【公式Twitter】https://twitter.com/tx_silverplan **
 
 <br/>
 
@@ -30,5 +30,5 @@
 <br/>
 
 [熟肉链接](https://manhua.dmzj.com/chongfanjksilverplan)
-<br/>
+<br/><br/>
 <font color="#ffffff">提取码：jksp</font>
